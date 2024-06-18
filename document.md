@@ -1,4 +1,3 @@
 teruhirokuniyasu
 
-てるひろくにやす
-クニヤス
+Teruhiro
