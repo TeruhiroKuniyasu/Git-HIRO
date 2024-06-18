@@ -1,3 +1,1 @@
-teruhirokuniyasu
-
-Teruhiro
+今はメインじゃない方です。
